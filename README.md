@@ -1,1 +1,0 @@
-# Mental-Health-Tech-Survey
